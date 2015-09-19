@@ -1,0 +1,1 @@
+I have try very hard on this project. Work on this project it, but there are some problems remaining in my program.... Since the deadline coming soon, I decide to submit this project first. And then I will fix it…
